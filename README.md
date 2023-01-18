@@ -59,4 +59,4 @@ I spend most of my time coding and contributing to discussions in tech communiti
 
 [Gmail](Danitomonga@gmail.com)
 
-[linkedin](www.linkedin.com/in/daniel-mungai-7a52451b8)
+[LinkedIn](https://www.linkedin.com/in/daniel-mungai-7a52451b8/)
